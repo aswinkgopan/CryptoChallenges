@@ -1,1 +1,1 @@
-sand of time
+snd of tiime
